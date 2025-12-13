@@ -1,0 +1,4 @@
+---
+title: c/ngata
+url: https://canopyforum.org/2023/04/11/johnson-v-mintosh-wi-parata-v-bishop-of-wellington-and-the-legacy-of-the-doctrine-of-discovery-in-aotearoa-new-zealand/
+---
